@@ -1,5 +1,3 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+welcome to the very first blog of my life!!
+being an english hons student, writing my very own blog feels like a diary entry
+i will be shariing how i adapted this new lifestyle in india
